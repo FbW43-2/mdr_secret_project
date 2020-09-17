@@ -8,3 +8,5 @@
 
 - Cafe Ohne Titel, Neukölln
 - Morgenrot, Mitte
+- Dritter Raum, Neukölln
+- Mokkabar, Kreuzberg

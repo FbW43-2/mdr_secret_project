@@ -2,13 +2,13 @@
 
 ## Cafes in Bochum (list curated by Dominik)
 
-1. Butterbrotbar
+- Butterbrotbar
 
-2. Zum Grünen Gaul
+- Zum Grünen Gaul
 
-3. Café Safran
+- Café Safran
 
-4. Löscher Bäckerei & Kontitorei
+- Löscher Bäckerei & Kontitorei
 
 ## Cafes in Leipzig (list curated by Raul)
 

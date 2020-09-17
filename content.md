@@ -10,6 +10,8 @@
 
 - Löscher Bäckerei & Kontitorei
 
+- Cafe Superhipsterbar
+
 ## Cafes in Leipzig (list curated by Raul)
 
 - Zum Arabischen Coffe Baum: Kleine Fleischergasse 4, 04109 Leipzig 

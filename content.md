@@ -5,5 +5,7 @@
 ## Cafes in Leipzig (list curated by Raul)
 
 - Downtown cafe, Sudvorstadt
+- Riquet Café: Schuhmachergäßchen 1, 04109 Leipzig
+
 
 ## Cafes in Berlin (list curated by Marko)

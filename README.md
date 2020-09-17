@@ -1,1 +1,1 @@
-# mdr_secret_project
+# mdr_secret_project: A very secret project managed by Dominik, Raul and THE CHOSEN ONE

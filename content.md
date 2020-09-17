@@ -4,8 +4,8 @@
 
 ## Cafes in Leipzig (list curated by Raul)
 
-- Downtown cafe, Sudvorstadt
+- Zum Arabischen Coffe Baum: Kleine Fleischergasse 4, 04109 Leipzig 
 - Riquet Café: Schuhmachergäßchen 1, 04109 Leipzig
-- Uptown cafe, Riemannstraße 44, 04107 Leipzig
+- Uptown cafe:  Riemannstraße 44, 04107 Leipzig
 
 ## Cafes in Berlin (list curated by Marko)

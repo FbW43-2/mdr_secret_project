@@ -24,5 +24,6 @@
 - Dritter Raum, Neukölln
 - Mokkabar, Kreuzberg
 - Starbucks, Mitte
+- Starbucks, Kreuzberg
 
 | All hail to the CHOSEN ONE the son of the all mighty TERMINAL of all time! Praise the holy KERNEL for his givings in the universe. | lol | 

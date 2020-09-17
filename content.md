@@ -4,4 +4,6 @@
 
 ## Cafes in Leipzig (list curated by Raul)
 
+- Downtown cafe, Sudvorstadt
+
 ## Cafes in Berlin (list curated by Marko)

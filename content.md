@@ -5,3 +5,6 @@
 ## Cafes in Leipzig (list curated by Raul)
 
 ## Cafes in Berlin (list curated by Marko)
+
+- Cafe Ohne Titel, Neukölln
+- Morgenrot, Mitte

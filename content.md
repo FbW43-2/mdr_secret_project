@@ -6,6 +6,6 @@
 
 - Downtown cafe, Sudvorstadt
 - Riquet Café: Schuhmachergäßchen 1, 04109 Leipzig
-
+- Uptown cafe, Riemannstraße 44, 04107 Leipzig
 
 ## Cafes in Berlin (list curated by Marko)
